@@ -19,7 +19,8 @@
 -----
 [https://vanillajstoolkit.com](https://vanillajstoolkit.com)
 -----
-
+[https://vanillajsguides.com](https://vanillajsguides.com)
+-----
 
 
 [https://fmontes.com](https://fmontes.com)
