@@ -4,6 +4,8 @@
 
 [https://maggieappleton.com](https://maggieappleton.com)
 -----
+[https://nirmalyaghosh.com](https://nirmalyaghosh.com)
+-----
 
 [https://blogsurf.io](https://blogsurf.io)
 -----
