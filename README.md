@@ -2,6 +2,9 @@
 
 ### Blogs to add to my blogroll
 
+[https://maggieappleton.com](https://maggieappleton.com)
+-----
+
 [https://blogsurf.io](https://blogsurf.io)
 -----
 [https://michaeluloth.com](https://michaeluloth.com)
