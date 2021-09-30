@@ -21,6 +21,9 @@
 
 [https://refined.blog](https://refined.blog)
 
+[https://blog.devcher.com](https://blog.devcher.com)
+
+
 -----
 [https://michaeluloth.com](https://michaeluloth.com)
 -----
