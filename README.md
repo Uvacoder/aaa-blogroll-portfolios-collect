@@ -1,5 +1,7 @@
 # my-blogroll
 
+[https://bartoszsowul.com](https://bartoszsowul.com)
+
 ### Blogs to add to my blogroll
 
 [https://maggieappleton.com](https://maggieappleton.com)
