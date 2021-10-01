@@ -70,6 +70,7 @@
 ----
 [https://matthewjamestaylor.com](https://matthewjamestaylor.com)
 ----
+[https://chriswiegman.com](https://chriswiegman.com)
 ----
 [https://gomakethings.com](https://gomakethings.com)
 -----
