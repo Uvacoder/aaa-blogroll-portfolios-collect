@@ -20,6 +20,8 @@
 
 [https://benjamincongdon.me](https://benjamincongdon.me)
 
+[https://blog.jessfraz.com](https://blog.jessfraz.com)
+
 ----
 ----
 
