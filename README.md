@@ -39,6 +39,8 @@
 ----
 [https://alligator.io](https://alligator.io)
 
+[https://hackernoon.com](https://hackernoon.com)
+
 [https://blogscroll.com](https://blogscroll.com)
 
 [https://blogsurf.io](https://blogsurf.io)
