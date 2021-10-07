@@ -40,6 +40,8 @@
 
 [https://wesbos.com](https://wesbos.com)
 
+[https://www.jamesqquick.com](https://www.jamesqquick.com)
+
 
 ----
 [https://alligator.io](https://alligator.io)
