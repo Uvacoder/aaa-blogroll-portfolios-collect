@@ -42,6 +42,7 @@
 
 [https://www.jamesqquick.com](https://www.jamesqquick.com)
 
+[https://brianlovin.com](https://brianlovin.com)
 
 ----
 [https://alligator.io](https://alligator.io)
