@@ -72,6 +72,9 @@
 
 [https://blog.devcher.com](https://blog.devcher.com)
 
+[https://app.daily.dev](https://app.daily.dev)
+
+
 ----
 
 [https://madewithvuejs.com](https://madewithvuejs.com)
