@@ -109,6 +109,8 @@
 [https://vanillajsguides.com](https://vanillajsguides.com)
 -----
 [https://css-irl.info](https://css-irl.info)
+----
+[https://aalam.in](https://aalam.in)
 -----
 
 [https://blog.usman-s.me](https://blog.usman-s.me)
