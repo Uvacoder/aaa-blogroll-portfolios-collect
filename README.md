@@ -72,8 +72,11 @@
 
 [https://blog.devcher.com](https://blog.devcher.com)
 
+-----
+
 [https://app.daily.dev](https://app.daily.dev)
 
+[https://daily.dev/blog](https://daily.dev/blog)
 
 ----
 
