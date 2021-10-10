@@ -168,6 +168,18 @@
 
 ### Design
 
+
+[https://www.paularrea.com](https://www.paularrea.com)
+
+---
+
+[https://www.alexperacaula.com](https://www.alexperacaula.com)
+
+---
+
+[https://wrongakram.com](https://wrongakram.com)
+
+
 [https://jgog.in](https://jgog.in)
 ---
 [https://jimmychion.com](https://jimmychion.com)
