@@ -2,6 +2,8 @@
 
 [https://bartoszsowul.com](https://bartoszsowul.com)
 
+[https://www.sophiamcclennen.com](https://www.sophiamcclennen.com)
+
 ### Blogs to add to my blogroll
 
 [https://alistapart.com](https://alistapart.com)
