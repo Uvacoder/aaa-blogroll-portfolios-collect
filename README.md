@@ -182,6 +182,8 @@
 [https://marioecg.com](https://marioecg.com)
 
 
+[https://jackmcdade.com](https://jackmcdade.com)
+
 [https://prashantsani.com](https://prashantsani.com)
 
 [https://www.paularrea.com](https://www.paularrea.com)
