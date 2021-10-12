@@ -193,6 +193,8 @@
 
 [https://wrongakram.com](https://wrongakram.com)
 
+[https://jacekjeznach.com](https://jacekjeznach.com)
+
 
 [https://jgog.in](https://jgog.in)
 ---
