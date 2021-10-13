@@ -4,6 +4,8 @@
 [https://devjavu.space](https://devjavu.space)
 
 
+[https://kottke.org](https://kottke.org)
+
 [https://bartoszsowul.com](https://bartoszsowul.com)
 
 [https://www.sophiamcclennen.com](https://www.sophiamcclennen.com)
