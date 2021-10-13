@@ -32,6 +32,8 @@
 
 [https://blog.jessfraz.com](https://blog.jessfraz.com)
 
+[https://laurakalbag.com](https://laurakalbag.com)
+
 
 [https://thesephist.com](https://thesephist.com)
 
