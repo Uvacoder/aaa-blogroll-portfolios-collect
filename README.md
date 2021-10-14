@@ -266,6 +266,7 @@
 
 [https://marioecg.com](https://marioecg.com)
 
+[http://www.artist-developer.com](http://www.artist-developer.com)
 
 [https://jackmcdade.com](https://jackmcdade.com)
 
